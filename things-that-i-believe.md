@@ -3,7 +3,7 @@ Last edited: 12/14/12
 
 ### Life
 * Life is about three things: Storytelling, Contrast, and making decisions easy for other people
-* * The best things in life almost don't happen
+* The best things in life almost don't happen
 * No one knows anything, we're all feeling around in the dark
 * It's important to be flexible with beliefs, that my beliefs and opinions may change with the facts.
 * Humor comes from differences and timing
