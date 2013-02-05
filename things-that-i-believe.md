@@ -23,7 +23,7 @@ Last edited: 1/5/13
 
 ### Relationships
 * Fidelity is of the utmost importance.
-* People are people. We're all going through the same things. You have nothing to lose by reaching out.
+* We're all going through the same things. Reach out. The worst you can get is a 'no.'
 * Marriage should be extended to everyone.
 
 
@@ -39,5 +39,6 @@ Last edited: 1/5/13
 * A man should build things with his hands.
 * The details are the product.
 * Teams and communities produce more than the sum of their parts.
+* Build things. Tell people.
 * Everything is built in a million little steps; do as many steps well as you can per day.
 * Work with those that want it and fit culturally, not necessarily the most qualified.
