@@ -12,7 +12,7 @@ Last edited: 1/5/13
 * There are no rules.
 * I'm only racing me.
 * College is about transporting information from the first day to the last. You don't have to learn anything other than how to play the game effectively. It's an incredibly important time to mature.
-
+* In hustle we trust.
 
 ### The Universe
 * There's something magical about the ocean; it's also the perfect metaphor for anything you're going through.
@@ -25,6 +25,7 @@ Last edited: 1/5/13
 * Fidelity is of the utmost importance.
 * We're all going through the same things. Reach out. The worst you can get is a 'no.'
 * Marriage should be extended to everyone.
+* Surprise is important.
 
 
 ### Self
