@@ -1,5 +1,5 @@
 This is intended to be a living document, subject to change and edits at any time.
-Last edited: 1/5/13
+Last edited: 4/8/13
 
 ### Life
 * Life is about three things: Storytelling, Contrast, and making decisions easy for other people.
