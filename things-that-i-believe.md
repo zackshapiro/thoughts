@@ -1,32 +1,27 @@
 This is intended to be a living document, subject to change and edits at any time.
-Last edited: 4/8/13
+
+*Last edited: 4/16/13*
 
 ### Life
-* Life is about three things: Storytelling, Contrast, and making decisions easy for other people.
 * The best things in life almost don't happen.
-* Humor comes from differences and timing.
+* There are no rules.
+* Life is about three things: Storytelling, Contrast, and making decisions easy for other people.
 * No one knows anything, we're all feeling around in the dark.
+* Go.
 * It's important to be flexible with beliefs; my beliefs and opinions may change with the facts.
 * A man should have a mystery about him, how he does all that he does.
 * Take information, synthesize it for yourself and then form your opinion.
-* There are no rules.
 * I'm only racing me.
-* College is about transporting information from the first day to the last. You don't have to learn anything other than how to play the game effectively. It's an incredibly important time to mature.
-* In hustle we trust.
+* College is about transporting information from the first day to the last. You don't have to learn anything, really, other than how to play the game. 
 * Confidence and direct attacks in the face of fear.
+* Humor comes from our differences and timing.
+* Surround yourself with physical books.
+
 
 ### The Universe
-* There's something magical about the ocean; it's also the perfect metaphor for anything you're going through.
-* Surround yourself with physical books.
+* There's something magical about the ocean; it's the perfect metaphor for anything you're going through.
 * I believe in God, I'm just not sure what to do with that belief yet.
 * Mathematically, there have to be other life forms out there, somewhere.
-
-
-### Relationships
-* Fidelity is of the utmost importance.
-* We're all going through the same things. Reach out. The worst you can get is a 'no.'
-* Marriage should be extended to everyone.
-* Surprise is important.
 
 
 ### Self
@@ -37,11 +32,18 @@ Last edited: 4/8/13
 * Everything is linked to exercise: eating well, sleeping, discipline.
 
 
-### Making
+### Relationships
+* Fidelity is of the utmost importance.
+* We're all going through the same things. Reach out. The worst you can get is a 'no.'
+* Marriage should be extended to everyone.
+* Surprise is important.
+
+
+### Creating
 * A man should build things with his hands.
 * The details are the product.
+* Momentum is a hell of a drug.
 * Build things. Tell people.
 * Teams and communities produce more than the sum of their parts.
-* Everything is built in a million little steps; do as many steps well as you can per day.
+* Everything is built in a million little steps; do as many steps well as you can each day.
 * Work with those that want it and fit culturally, not necessarily the most qualified.
-* Momentum is a hell of a drug.
