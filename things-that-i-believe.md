@@ -1,4 +1,4 @@
-#### Things that I believe to be true
+## Things that I believe to be true
 
 This is intended to be a living document, subject to change and edits at any time.
 
