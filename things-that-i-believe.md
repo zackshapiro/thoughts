@@ -2,7 +2,7 @@
 
 This is intended to be a living document, subject to change and edits at any time.
 
-*Last edited: 10/26/13*
+*Last edited: 12/25/13*
 
 ### Life
 * The best things in life almost don't happen.
@@ -16,17 +16,16 @@ This is intended to be a living document, subject to change and edits at any tim
 * Take information, synthesize it for yourself and then form your opinion.
 * I'm only racing me.
 * Only measure yourself against yourself.
-* College is about transporting information from the first day to the last. You don't have to learn anything, really, other than how to play the game. 
 * Confidence and direct attacks in the face of fear.
 * Humor comes from our differences and timing.
-* Surround yourself with physical books.
+* College is about transporting information from the first day to the last. You don't have to learn anything, really, other than how to play the game. 
 
 
 ### The Universe
 * There's something magical about the ocean; it's the perfect metaphor for anything you're going through.
 * I believe in God, I'm just not sure what to do with that belief yet.
 * I really want there to be something after life.
-* Mathematically, there have to be other life forms out there, somewhere.
+* Mathematically, there have to be other life forms out there.
 
 
 ### Self
@@ -35,15 +34,21 @@ This is intended to be a living document, subject to change and edits at any tim
 * Do the next one.
 * I hope I'm always this good at falling asleep.
 * Everything is linked to exercise: eating well, sleeping, discipline.
-* I work really well off of a to-do list
+* Surround yourself with physical books. If you enjoyed an ebook, buy a physical copy too.
+
+
+### Work/Business
+* I work really well off of a to-do list.
+* It's important to take chances on people.
+* Mentors are important, so is disagreeing with them.
+* Make decisions and reflect on them often.
 
 
 ### Relationships
 * Fidelity is of the utmost importance.
 * We're all going through the same things. Reach out. The worst you can get is a 'no.'
+* Surprise and spotanaety are important.
 * Marriage should be extended to everyone.
-* Surprise is important.
-* It's important to take chances on people.
 
 
 ### Creating
@@ -52,6 +57,8 @@ This is intended to be a living document, subject to change and edits at any tim
 * Momentum is a hell of a drug.
 * Build things and tell people.
 * The more consistent you are with what you're working on, the more people notice.
+* When you put something you've created out there, all kinds of unexpected options and people come into your world.
+* It's always terrifying to push the thing out the door.
 * Teams and communities produce more than the sum of their parts.
 * Everything is built in a million little steps; do as many steps well as you can each day.
-* Work with those that want it and fit culturally, not necessarily the most qualified.
+* Work with those with the drive, and that fit culturally. Not necessarily the most qualified.
